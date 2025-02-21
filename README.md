@@ -35,4 +35,4 @@
 
 
 <br>
-⭐️ From [axiftaj](https://github.com/axiftaj)
+⭐️ From [QaboolMohammed](https://github.com/Nadejag)
